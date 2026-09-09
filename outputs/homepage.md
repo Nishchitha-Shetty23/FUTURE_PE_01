@@ -15,7 +15,7 @@ We combine attentive service with well-appointed rooms to ensure every guest fee
 
 Our Amenities & Features
 Comfortable, Well-Maintained Rooms — Clean, spacious rooms equipped with modern furnishings for a restful stay.
-Complimentary Wi-Fi — Stay connected throughout your visit, ideal for business travelers and families alike.
+Enjoy a welcoming and comfortable environment designed to make your visit to Mangaluru pleasant and convenient, ideal for business travelers and families alike.
 24-Hour Front Desk — Round-the-clock assistance for check-ins, queries, and guest support.
 On-Site Dining — Enjoy a variety of local and multi-cuisine options without leaving the hotel.
 Convenient Location — Easy access to Mangaluru's business districts, transport hubs, and popular attractions.
