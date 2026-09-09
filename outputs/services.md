@@ -28,7 +28,7 @@ Our team can help you choose the room option that best fits your travel plans an
 
 Dining
 
-Coastal Comfort Hotel offers on-site dining options, giving guests the convenience of enjoying meals without having to step out. Whether you're starting your day with breakfast or unwinding after a long day of travel or meetings, our dining service is here to make mealtimes easy.
+Guest can explore convenient dining option during their stay, giving guests the convenience of enjoying meals without having to step out. Whether you're starting your day with breakfast or unwinding after a long day of travel or meetings, our dining service is here to make mealtimes easy.
 
 Guest Services
 
