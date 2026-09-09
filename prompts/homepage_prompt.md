@@ -15,7 +15,7 @@ Act as an expert website copywriter for a local hotel.
 - Business travelers
 
 ## Business Goal
-Create engaging, clear, and website-ready homepage copy that introduces the hotel and encourages visitors to consider staying there.
+Create engaging, clear, and website-ready homepage copy that introduces the hotel and encourages visitors to consider a booking stay.
 
 ## Requirements
 Create homepage content that includes:
