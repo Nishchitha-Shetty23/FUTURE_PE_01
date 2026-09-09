@@ -2,62 +2,47 @@
 
 ## Headline
 
-### Coastal Comfort Hotel — Your Comfortable Stay in the Heart of Mangaluru
+Coastal Comfort Hotel — Your Comfortable Stay in Mangaluru
 
 ## Subheadline
 
-Convenient location, warm hospitality, and comfortable rooms — everything you need for a relaxing stay in Mangaluru, whether you're here for business, leisure, or family time.
+A welcoming and comfortable stay in Mangaluru for tourists, families, couples, and business travelers.
 
 ## Welcome to Coastal Comfort Hotel
 
-Located in the coastal city of Mangaluru, Coastal Comfort Hotel offers a comfortable and convenient stay for different types of travelers.
+Located in Mangaluru, Coastal Comfort Hotel offers a comfortable and welcoming place to stay for different types of travelers.
 
-Whether you're visiting for business, exploring the city and its surroundings, or spending time with family, our hotel is designed to make your stay comfortable and enjoyable.
+Whether you are visiting for business, exploring Mangaluru, spending time with family, or enjoying a couple's getaway, our hotel provides a simple and comfortable base for your visit.
 
-We combine well-maintained rooms with attentive guest support to provide a welcoming experience from arrival to departure.
+We aim to make your stay pleasant from arrival to departure with a warm and professional approach to guest service.
 
-## Our Amenities & Features
+## Our Stay Experience
 
-### Comfortable, Well-Maintained Rooms
-Enjoy a comfortable and welcoming room designed to help you relax during your stay.
+### Comfortable Stay
 
-### Complimentary Wi-Fi
-Stay connected during your visit with complimentary Wi-Fi, suitable for both business and personal needs.
+Enjoy a welcoming environment designed to help you relax during your visit to Mangaluru.
 
-### Guest Support
-Our team is available to assist guests with questions and stay-related needs, helping make your visit more convenient.
+### For Different Travelers
 
-### On-Site Dining
-Enjoy the convenience of on-site dining options during your stay without needing to leave the hotel for every meal.
+Whether you are traveling for business, leisure, or family time, Coastal Comfort Hotel is suited to the needs of different travelers.
 
-### Convenient Location
-Stay in Mangaluru with convenient access to key areas of the city, making the hotel a practical choice for business, leisure, and family travel.
+### A Welcoming Experience
 
-### Parking Facility
-Guests travelling by car can make use of the hotel's parking facility.
-
-### Housekeeping Services
-Housekeeping support helps keep your room clean and comfortable throughout your stay.
-
-### Family & Couple-Friendly Rooms
-Our accommodation options are designed to suit different travelers, including couples and families.
+Our focus is on providing a comfortable and straightforward stay for guests visiting Mangaluru.
 
 ## Why Choose Coastal Comfort Hotel?
 
-### Convenient Stay in Mangaluru
-Enjoy a comfortable base for your visit to Mangaluru, whether your trip is for business, leisure, or family time.
+### Comfortable Stay in Mangaluru
 
-### Comfort You Can Rely On
-Our rooms are designed with your comfort in mind, providing a welcoming space to relax after your day.
+Stay in a welcoming environment while visiting Mangaluru for business, leisure, or family time.
 
-### Friendly, Attentive Service
-Our team is committed to providing helpful and attentive support throughout your stay.
+### Suitable for Different Travelers
 
-### Convenient Amenities
-From comfortable rooms and Wi-Fi to dining and guest support, our services are designed around your everyday stay needs.
+Our hotel welcomes tourists, families, couples, and business travelers looking for a comfortable place to stay.
 
-### Suited for Different Travelers
-Whether you're travelling for work, enjoying a couple's getaway, or spending time with family, Coastal Comfort Hotel offers a comfortable stay for your needs.
+### Simple and Welcoming
+
+Enjoy a straightforward hotel experience focused on comfort, convenience, and a pleasant stay.
 
 ## Book Your Stay Today
 
@@ -65,8 +50,6 @@ Whether you're travelling for work, enjoying a couple's getaway, or spending tim
 
 Looking for a comfortable place to stay in Mangaluru?
 
-Coastal Comfort Hotel is ready to welcome you. Contact our team to enquire about room availability, services, and your upcoming stay.
+Coastal Comfort Hotel is ready to welcome you. Contact our team to enquire about your stay and room availability.
 
 **[Book Now] [Enquire Today]**
-
-Our team is happy to assist you in planning a comfortable and convenient stay.
